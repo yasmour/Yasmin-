@@ -9,3 +9,6 @@ meu nome e a yasmin andrade
 ### voce entra em contato comigo📫
 
 00001118788783sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/YFys4TMb4pAAAAAd/house-of-the-dragon-tomsj2005.gif)
+
